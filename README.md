@@ -33,4 +33,4 @@ Music industry executive and technology builder. I bridge the gap between music 
 
 - LinkedIn: in/brandonbrownmusic
 - IMDB: nm10735238
-- Email: [brandon@brandonbrownmusic.com](mailto:brandon@brandonbrownmusic.com)
+- Email: [brandonbrown96@googlemail.com](mailto:brandonbrown96@googlemail.com)
